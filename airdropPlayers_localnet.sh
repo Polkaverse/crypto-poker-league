@@ -1,0 +1,5 @@
+solana airdrop 10 AgsXsHN81vP5VmeF7ZTQTSyZnm68mt6Z1QUpyyrKS9HK
+solana airdrop 10 3mVtZ1eXJ9kTjRmjn8QWuehpnAYwPEc4fLNfAPtGpYxV
+solana airdrop 10 J5kJKGwbGL8pNUSgLVTsBToTtZAsiA6fsmpa36EqnDvr
+solana airdrop 10 GssdoekYFXewNFxRJVTpsM42BEu3Yxi42C8gZvnfuTdw
+solana airdrop 10 5te8YMaGTnzskXUtZJoasbTsEhAA6ZncXr1CrEdCGk2B
